@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **frameworks**
 
-- 📫  **harshavardhanbandi001@gmail.com**
+- 📫 reach me at **harshavardhanbandi001@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
